@@ -1,2 +1,1 @@
-# v12-Botlar-m
-Türkiyenin Bi Zamanlar En İyi V12 Moderasyon Botu
+Wex İle Eskiden Kullandığımız V12 Botlarının Pek Bi Vasfı Kalmadığı İçin Paylaşma Kararı Aldım İyi Forumlar!
